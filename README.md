@@ -1,1 +1,1 @@
-https://truust.io/wp-content/uploads/2017/09/Que%CC%81-es-un-Marketplace-y-co%CC%81mo-puedes-ganar-dinero-con-e%CC%81l.jpg
+![image](https://github.com/user-attachments/assets/1d6fa010-5560-4ac2-abfc-85a5387dbf30)
